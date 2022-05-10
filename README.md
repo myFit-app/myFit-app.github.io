@@ -1,0 +1,1 @@
+## The privacy policy for myFit.
